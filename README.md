@@ -1,4 +1,4 @@
-# 🎬 Baaghi 4 (2025) – Full Movie Download & Watch Online in HD
+# Baaghi 4 (2025) – Full Movie Download & Watch Online in HD
 
 🔥 Now Streaming | Available in 1080p, 720p, 480p | Hindi Dubbed & Subtitled
 
